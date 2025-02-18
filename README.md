@@ -7,3 +7,5 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Monkey D. Luffy, [oo.or.id](https://oo.or.id).
+* Anugerah Surya Atmaja, [LinkedIn-anugerahhsurya](https://www.linkedin.com/in/anugerah-surya-atmaja-22356a349/)
+* 
